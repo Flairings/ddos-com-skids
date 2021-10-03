@@ -6,3 +6,4 @@ offical tm list of retards
 - Sunny-MLP: rides vex's cock, claims space didn't hit his T-Mobile (https://imgur.com/a/kBPF2QA), looks like a meth head (https://imgur.com/a/O0cGY92)
 - iotnet: claims to hit instagram, and then proceeds to hit random fivem ovhs every other day. joker is dog shit
 - 0xDelta: pc got beamed by space
+- Mavrickslams: thinks he has access to instagrams database. also tries to scare people by sending a password reset notification using there instagram username
