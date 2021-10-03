@@ -1,4 +1,4 @@
-# ddoscom skid list
+# ddos com skid list
 offical tm list of retards
 
 - VexThaGawd: claims you need "18k gbps" to down his nfo, mutes you in cord if he fails to hit you
