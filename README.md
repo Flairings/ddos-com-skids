@@ -7,3 +7,4 @@ offical tm list of retards
 - iotnet: claims to hit instagram, and then proceeds to hit random fivem ovhs every other day. joker is dog shit
 - 0xDelta: pc got beamed by space
 - Mavrickslams: thinks he has access to instagrams database. also tries to scare people by sending a password reset notification using there instagram username
+- Kelly: gets slammed out of call 4 times and then comes back screaming "you cant hit me" and "you got filtered", also flexes a Comcast that also gets slammed
